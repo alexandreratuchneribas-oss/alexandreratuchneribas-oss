@@ -1,16 +1,25 @@
 ## Hi there 👋
 
-<!--
-**alexandreratuchneribas-oss/alexandreratuchneribas-oss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<--
+Meu nome é Alexandre Ratuchne Ribas
 
-Here are some ideas to get you started:
+- Estudo no Colégio Manoel Ribas
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+
+![](https://media1.tenor.com/m/Q3b1YTov9MUAAAAd/monsters-vs-aliens-bob.gif)
+
+- Tenho 14 anos
+
+![](https://media1.tenor.com/m/GgLwolFoG0sAAAAC/rat-dance.gif)
+
+- Estou no 9° ano do Colégio
+
+
+![](https://media1.tenor.com/m/pY_bgqiOVOIAAAAC/walter-walter-white-falling.gif)
+
+- Tenho um grande futuro
+
+![](https://media1.tenor.com/m/ouc1RFl-gSoAAAAC/walter-white-breaking-bad.gif)
+
+
 -->
