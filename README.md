@@ -12,10 +12,11 @@ Meu nome é Alexandre Ratuchne Ribas💀
 
 ![](https://media1.tenor.com/m/GgLwolFoG0sAAAAC/rat-dance.gif)
 
-- Estou no 9° ano do Colégio
+- Estou no 1° ano do Colégio
 
 
-![](https://media1.tenor.com/m/pY_bgqiOVOIAAAAC/walter-walter-white-falling.gif)
+![](https://www.tiktok.com/@sanity.y/video/7564866609119022358)
+
 
 - Tenho um grande futuro
 
