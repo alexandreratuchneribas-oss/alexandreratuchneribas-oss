@@ -15,7 +15,7 @@ Meu nome é Alexandre Ratuchne Ribas💀
 - Estou no 1° ano do Colégio
 
 
-![](https://www.tiktok.com/@sanity.y/video/7564866609119022358)
+![](https://tenor.com/pt-BR/view/ishowspeed-meme-trying-not-to-laugh-laugh-homeless-gif-9458928528704746136)
 
 
 - Tenho um grande futuro
