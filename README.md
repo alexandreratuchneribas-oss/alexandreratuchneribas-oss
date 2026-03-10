@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 <--
-Meu nome é Alexandre Ratuchne Ribas
+Meu nome é Alexandre Ratuchne Ribas💀
 
 - Estudo no Colégio Manoel Ribas
 
